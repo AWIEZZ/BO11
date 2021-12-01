@@ -15,17 +15,15 @@ return `PAYMENT BY ZEEONE OFC
 *💰 E-MONEY*
 
 1. GOPAY
-	ㅁ 0887 4350 47326
+	ㅁ 0858 9260 0019 a/n :AW** AMAN**
 2. OVO
-	ㅁ 0887 4350 47326
+	ㅁ 0895 3672 08200 a/n :aw** s**p
 3. DANA
-	ㅁ 0887 4350 47326
-	
-Semuanya atas nama RI****DI
+	ㅁ 0895 3672 08200 a/n :YU***NTI
 
 *📲 PULSA*
 
-Tidak tersedia
+085852311805
 	
 Sebelum melakukan pembayaran ada baiknya anda menghubungi owner terlebih dahulu!
 `
